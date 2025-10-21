@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about my life outside of school.
 - 📫 How to contact me: My Instagram is @yisvs9.
 - 😄 Pronouns: yisus.
-- ⚡ Fun fact: I upload songs to YouTube.
